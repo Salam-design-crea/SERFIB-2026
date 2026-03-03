@@ -1,2 +1,2 @@
 # SERFIB-2026
-5Séminaire Régional de Formation Islamique du Béré 
+Cinquième édition du éminaire Régional de Formation Islamique du Béré.
